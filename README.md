@@ -1,1 +1,0 @@
-# tirpz-lab1
